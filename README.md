@@ -31,7 +31,7 @@
 
 
 ## Contact
-Created by [@sumitksingh0702] and [@thistle05] - feel free to contact me!
+Created by [@sumitksingh0702] and [@tapannayak005] - feel free to contact me!
 
 
 <!-- Optional -->
